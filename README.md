@@ -41,7 +41,7 @@ Here are some ideas to get you started:
 𝘿𝙉𝙄 !
 <p align="center"
   
-✦ ₊‧ basic dni, under 13, you are toxic, faking mental illnesses, dramatic, racist, dsmp fanㅤ୧ !
+✦ ₊‧ basic dni, you are toxic, faking mental illnesses, dramatic, racist, dsmp fanㅤ୧ !
 <p align="center"
   
 𝘽𝙔𝙄 !
