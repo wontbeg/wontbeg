@@ -20,10 +20,10 @@ Here are some ideas to get you started:
 <p align="center"><img src="https://64.media.tumblr.com/e0e4008688b2887e22d131b601efce37/e50d58ec82786ab1-f0/s540x810/acae4cbd544a65e58777ee596a75d1ab3e37b1da.pnj" width="40">   ꒰ Yiu ꒱ㅤㅤshe ﾉ they
 <p align="center"
   
-𐔌ㅤESFP-T  english isn't my first language
+𐔌ㅤESFP-T
 <p align="center"
   
-  at docks or around pony townㅤ ﹏﹏ㅤㅤʚ ♡ ɞㅤ
+  i get on pony town after monthsㅤ ﹏﹏ㅤㅤʚ ♡ ɞㅤ
 
   
 
